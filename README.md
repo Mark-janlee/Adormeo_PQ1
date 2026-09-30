@@ -1,0 +1,1 @@
+Magyuyubak,Magniniyog,Magiisda
